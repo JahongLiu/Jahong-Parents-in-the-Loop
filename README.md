@@ -1,6 +1,10 @@
 ![image](https://github.com/user-attachments/assets/be357ddb-8be7-429a-bd4a-6161899c56b1)
 
-![image](https://github.com/user-attachments/assets/1a1d9e3f-61c0-44b5-94ff-93e158f5c17a)
+
+<img width="1506" alt="Screenshot 2025-06-06 at 4 01 38 PM" src="https://github.com/user-attachments/assets/46fc665d-2199-4150-90d8-dda0a656250b" />
+
+
+
 
 
 # Parents-in-the-Loop
